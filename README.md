@@ -6,7 +6,7 @@ When your buisness is yourself you need a way to market yourself. A good startin
 ```
 ## Demo
 
-https://drive.google.com/file/d/1pQ-RrbAJtqdbNXdp5PG8v0yplQJ4Aq9V/view?usp=drive_link
+https://drive.google.com/file/d/1pQ-RrbAJtqdbNXdp5PG8v0yplQJ4Aq9V/view?usp=sharing
 
 ## Author
 
